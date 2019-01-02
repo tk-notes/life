@@ -22,6 +22,7 @@
 - [How to Simplify Your Finances: Investing](https://medium.com/simple-not-easy/how-to-simplify-your-finances-investing-as-a-diy-investor-part-2-of-5-c0d17a88ed03)
 - [How to Simplify Your Finances: Saving](https://medium.com/simple-not-easy/how-to-simplify-your-finances-saving-part-1-of-5-9bb227be1141)
 - [Small Steps, Big Impact: How to Achieve Financial Peace Today](https://medium.com/swlh/small-steps-big-impact-how-to-achieve-financial-peace-today-85250e609695)
+- [Personal Finance Is Not About Money. It’s About VHM](https://jennifertchan.net/personal-finance-is-not-about-money-its-about-vhm/)
 
 ## Health
 
